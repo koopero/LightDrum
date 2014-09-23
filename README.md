@@ -1,0 +1,1 @@
+Here is a quick sketch to power Ed Cooper's LightDrum installation art.
